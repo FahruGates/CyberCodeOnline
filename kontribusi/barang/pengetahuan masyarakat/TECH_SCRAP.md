@@ -1,0 +1,1 @@
+Baut longgar, potongan kabel, dan beberapa bagian bercahaya yang Anda yakin tidak boleh dibuka, semua sisa apa pun yang Anda pilih untuk dibongkar. Ini tidak banyak sekarang, tetapi jika Anda berhasil mendapatkan cukup banyak, Anda harus dapat membangun sesuatu yang keren dengannya.
